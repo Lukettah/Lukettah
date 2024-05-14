@@ -1,6 +1,6 @@
 # sobre mim **LUCAS**
-## QUEM É QUE MANDA? 
-### *A YGONA*
+## insira texto
+
 - 👋 EU SOU @Lukettah
 - :+1:O MEU [EMAIL](LUCAS.SOARES.ROCHA@ESCOLA.PR.GOV.BR)
 - 👀 I’m interested in ...
