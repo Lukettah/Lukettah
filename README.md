@@ -8,7 +8,7 @@
 - 💞️ I’m looking to collaborate on: insira texto
 - 📫 How to reach me: insira texto
 - 😄 Pronouns: insira texto
-- ⚡ Fun fact: insira texto
+- ⚡ Fun fact: como eu faço pra editar meu perfil?
 
 <!---
 Lukettah/Lukettah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
